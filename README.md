@@ -9,6 +9,6 @@ In order to use the mod, you will require Monkey mod manager and great mod menu 
 ![image alt](https://github.com/BLOL12/Gorilla-Tag-FNAF1-Home/blob/main/2025-05-02%2009-24-07-18.png?raw=true)
 ![image alt](https://github.com/BLOL12/Gorilla-Tag-FNAF1-Home/blob/main/2025-05-02%2009-24-21-16.png?raw=true)
 ![image alt](https://github.com/BLOL12/Gorilla-Tag-FNAF1-Home/blob/main/2025-05-02%2009-25-08-79.png?raw=true)
-![image alt](
+![image alt](https://github.com/BLOL12/Gorilla-Tag-FNAF1-Home/blob/main/2025-05-02%2009-26-21-82.png?raw=true)
 ![image alt](
 ![image alt](
